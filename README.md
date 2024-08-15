@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TobyMODD
+- 👀 I’m interested in Minecraft and Call of duty modding
+- 🌱 I’m currently learning Python & Java
+- 📫 How to reach me : (please don't)
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: Still stuck in high school 😭
