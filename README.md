@@ -1,6 +1,3 @@
 - 👋 Hi, I’m @TobyMODD
 - 👀 I’m interested in Minecraft and Roblox modding
 - 🌱 I’m currently learning Python & Java
-- 📫 How to reach me : (please don't)
-- 😄 Pronouns: He/him
-- ⚡ Fun fact: Still stuck in high school 😭
